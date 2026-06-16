@@ -1,0 +1,2 @@
+# pixel-client-kirka
+THE BEST CLOSET HACK!!!! JST OPEN THE F12 AND ENTER THE SCRIPT!!! NO NEED TAMPERMONKEY✅✅✅😀
